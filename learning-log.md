@@ -1,1 +1,1 @@
-
+# My goals for this class are to gain further skill and knowledge in the backend development area. In this class I want to achive a grade of an A and compelete all the task each week to the best of my abiltiy. 
